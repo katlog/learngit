@@ -1,0 +1,2 @@
+stdou
+	iiddidi
